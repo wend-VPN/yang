@@ -2,8 +2,7 @@
 
 在外出行或者工作娱乐时候，若想访问Google、Facebook、Instagram、YouTube等外网，必须使用[手机外网VPN翻墙](https://appletalking.cc/archives/2625)。以下列出4款精选于Github的免费手机外网梯子VPN，都是通过个人实测，确保速度和连接性都在高水准范围内，并对其稳定性和网络安全进行比较，快来看看吧！
 
-![Uploading 老牌机场推荐.png…]()
-
+![老牌机场推荐](https://github.com/user-attachments/assets/6dc87c0c-6b26-44b5-9342-009dd27fca55)
 
 ### 1.DOVE—免费Android手机和IOS手机梯子
 ### [点击直达官网](https://dove8.cc/a.php?alavBTtF8UB)
